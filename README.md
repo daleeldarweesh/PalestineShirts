@@ -49,5 +49,4 @@
 [Stunning 'Palestine Pride' T-Shirt: Unique Design Celebrating Palestine](https://www.palestine-shirts.com/store/p314/Palestine-Pride-T-Shirt.html)
 [Proudly Palestinian: The 925 Silver Shemagh Necklace](https://www.palestine-shirts.com/store/p316/Proudly-Palestinian-The-925-Silver-Shemagh-Necklace.html)
 [Exquisite Palestine Map Necklace with Old City of Jerusalem Engraving](https://www.palestine-shirts.com/store/p317/Exquisite-Palestine-Map-Necklace-with-Old-City-of-Jerusalem-Engraving.html)
-[Palestinian Kuffieh Necklace 	https://www.palestine-shirts.com/store/p318/Palestinian-Kuffieh-Necklace.html)
-![image](https://github.com/daleeldarweesh/PalestineShirts/assets/139485448/b4131c1a-4434-4e8f-a6b7-d27e18ba24ee)
+[Palestinian Kuffieh Necklace](https://www.palestine-shirts.com/store/p318/Palestinian-Kuffieh-Necklace.html)
